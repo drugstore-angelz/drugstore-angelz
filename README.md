@@ -1,14 +1,14 @@
 <div align="center">
 
 
-${\color{#e0b577} ᝰ🚬 \space}$
+${\color{#f7f6f4} ᝰ🚬 \space}$
 
 
 <img width="1199" height="921" alt="image" src="https://github.com/user-attachments/assets/ab71b6dc-7a13-494a-b72c-bc58f413ff42" />
 
 ${\space}$
 
-${\color{#e0b577} Report \space ur \space}$ ${\color{#e0b577} sins \space}$
+${\color{#fcf6ee} Report \space ur \space}$ ${\color{#b58787} sins \space}$
 [here](https://kiribaku.atabook.org/)
 ${\space}$
 
