@@ -8,7 +8,8 @@ ${\color{#e0b577} ᝰ🚬 \space}$
 
 ${\space}$
 
-${\color{#e0b577} Sign \space the \space}$ ${\color{#e0b577}}$ [book ☠︎︎](https://kiribaku.atabook.org/)
+${\color{#e0b577} Report \space ur \space}$ ${\color{#e0b577} sins \space}$
+[here](https://kiribaku.atabook.org/)
 ${\space}$
 
 <img width="1200" height="808" alt="image" src="https://github.com/user-attachments/assets/1a41a17d-d888-40c9-bef2-3aa58c6f04ce" />
