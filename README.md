@@ -12,4 +12,4 @@ ${\space}$
 ${\color{#e0b577} Sign \space my \space}$ ${\color{#e0b577}}$ [atabukk۶ৎ](https://kiribaku.atabook.org/)
 ${\space}$
 
-<img width="468" height="358" alt="iwaoitwalkingicongithub" src="https://github.com/user-attachments/assets/eb7b6c4d-f670-4c75-b456-75f119f27fa5" />
+<img width="1200" height="808" alt="image" src="https://github.com/user-attachments/assets/1a41a17d-d888-40c9-bef2-3aa58c6f04ce" />
