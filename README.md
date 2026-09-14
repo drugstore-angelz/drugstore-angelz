@@ -8,7 +8,7 @@ ${\color{#f7f6f4} ᝰ🚬 \space}$
 
 ${\space}$
 
-${\color{#fcf6ee} Report \space ur \space}$ ${\color{#b58787} sins \space}$
+${\color{#b58787} Report \space ur \space}$ ${\color{#b58787} sins \space}$
 [here](https://kiribaku.atabook.org/)
 ${\space}$
 
